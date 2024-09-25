@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Janarikk
+- 👀 I’m interested in guilty gear 
+- 🌱 I’m currently learning lua as a programming language
+- 💞️ I’m looking to collaborate on nothing, sorry
+- 📫 How to reach me through discord, username: hkfg
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: 🏳️‍⚧️
